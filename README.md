@@ -9,6 +9,6 @@
 
 - 🌱 I’m currently learning type script 
 - 💬 Ask me about anything
-- 📫 How to reach me yizak22@gmail.com
+- 📫 How to reach me yizak223@gmail.com
 - ⚡ Fun fact i am also play on the guitar
   
